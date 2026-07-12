@@ -11,7 +11,7 @@
 
 | Item | Details |
 |------|---------|
-| **Prepared By** | Ateke Tamunonengieofori |
+| **Prepared By** | Bright Madubuochi Omaranma |
 | **Classification** | Confidential – For Academic and Internal Review Use Only |
 | **Date** | 10 July 2026 |
 
